@@ -5,7 +5,6 @@
 - 🌱 I’m currently in High school
 - 💬 Ask me about ...
 - 📫 How to reach me: Discord username - thecapedcrusaderbat
-- 😄 Pronouns: Male
 - ⚡ Fun fact: I am carbon based
 
 ## 🚀 Stats
