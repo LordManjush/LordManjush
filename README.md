@@ -6,7 +6,7 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: Discord username - thecapedcrusaderbat
 - ⚡ Fun fact: I am carbon based
-- Here is a way to help me if you want to or likes my work - https://www.patreon.com/LordManjush
+- Buy me a cookie - https://www.patreon.com/LordManjush
 
 
 ## 🚀 Stats
